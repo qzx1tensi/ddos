@@ -1,7 +1,7 @@
-TG :
+DDOS
 
-@rageonion
-@ragerussia
-@realshitdump
-@uglysimcard
-@ragemetodgang_bot
+
+
+
+
+
